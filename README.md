@@ -1,2 +1,3 @@
-# lmms-stuff
-repo where I put voice samples and things I make or need with LMMS. (might be a few leaks for the hour long mod as well)
+Currently, I can't make music for the mod this week (both Kahoot and meme hour long one) because I got my computer priveleges taken away. ( I accidentally hit my sister with a pack of Uno cards)
+
+So um, yeah.
